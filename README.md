@@ -22,7 +22,7 @@ This review is incredibly biased, incredibly opinionated and was made with nothi
 
 > *"My name is Bumblebee"* – Bumblebee
 
-**💭My Thoughts** <br>
+**💭 My Thoughts** <br>
 I love this movie! First of all, Bumblebee (B-127) is my fav Autobot. This yellow robot is cute, funny and CUTE!! It is part of the film franchise of Transformers series and I LOVE EVERY SINGLE ONE! The reasons why Bumblebee is the only one getting a review are: 
   1) I LOVE BUMBLEBEE
   2) HE IS MY *FAV*
@@ -43,7 +43,7 @@ Anyways, you get the point. I love the whole series though. Good edit, good stor
 
 > *“Effort and dedication should be left behind the moment you’ve given them. Hoping for some kind of payment or demanding recognition of your input, things will turn into a muddy mess in a flash.”* – Master Kim
 
-**💭My Thoughts** <br>
+**💭 My Thoughts** <br>
 I finished all 3 seasons of this series, I can't get enough. I am still genuinely hoping to get one last season where all the main cast from the season 1 and season 2 will get to work together. I love how this series tells the life and principles a doctor should have, it tackles various social injustices that the society faces. In a way, it is an eye-opener how important healthcare is.
 <br>
 
@@ -58,7 +58,7 @@ I finished all 3 seasons of this series, I can't get enough. I am still genuinel
 
 > *"I didn't just get the cure to el cancer, I got the cure to el everything."* – Wade Wilson also Deadpool
 
-**💭My Thoughts** <br>
+**💭 My Thoughts** <br>
 I have watched the two movies of Deadpool but not the recent movie with Wolverine. I like Deadpool because he isn't the ideal hero. I love complex characters because of the variety of actions they show. I love how they are not bound to idealistic views and offers a more realistic view to the audience. Deadpool is a morally grey character, he does some questionable things and some are borderline good and bad. This goes to show the complexity of human reason; how society labels the good and the bad, the hero and the villains.
 
 ## **Twinkling Watermelon** (Series)
@@ -72,7 +72,7 @@ I have watched the two movies of Deadpool but not the recent movie with Wolverin
 
 > *“When your life can twinkle again on its own, I hope it twinkles as radiantly as possible.”* – Ha Eun Gyeol
 
-**💭My Thoughts** <br>
+**💭 My Thoughts** <br>
 Definitely one of my comfort series! This is about a boy who time travels to the past and met the younger version of his father. There, he forms a band together with his father and his friends. The series is full of heartwarming scenes and retro vibes. It's one of those dramas that makes you smile and cry in equal measure. I also love the beautiful cinematography and soundtracks. A must watch, indeed! 
 <br>
 
@@ -91,7 +91,7 @@ Definitely one of my comfort series! This is about a boy who time travels to the
 
 > *"Going at full throttle all the time like that overloaded my CPU. The screen went blank, and the keys stopped working. So I had no choice but to reboot myself."* – Bae Seok Ryu
 
-**💭My Thoughts** <br>
+**💭 My Thoughts** <br>
 I am only at episode 3 but this series hits hard. I love the characters so far, and I love how they tackle complex emotions which explains their actions. The characters are well writen and there's something in this series that speaks to me. Maybe because I can see myself in Bae Seok Ryu's character, who returns to her home country after a difficult time. I'm so excited for christmas break, I'll definitely catch up to my watchlist soon. This series will probably one of my comfort series, it's perfect for people who just want to watch a light, feel-good romance drama.
 <br>
 
@@ -106,7 +106,7 @@ I am only at episode 3 but this series hits hard. I love the characters so far, 
 
 > *“You people are police officers. Your job is to realize justice.”* – Jin Hogae
 
-**💭My Thoughts** <br>
+**💭 My Thoughts** <br>
 I stopped at episode 7 of the first season and I can't wait to continue this again. I will probably rewatch it from the first episode since it has been a while and I forgot some of the details already. However, I do remember how thrilling this series is. The story revolves around Jin Hogae who got transfered to a certain police station where they always work with the fire station to respond to fierce scenes between crime, disasters, and emergencies. I really like how they showcase different cases and how they solve it. 
 <br>
 
